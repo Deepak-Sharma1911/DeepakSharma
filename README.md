@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working at GlobalLogic<br>💬 Ask me about Web development related stuff<br>📫 How to reach me: LinkedIn - https://www.linkedin.com/in/deepak-sharma-49b9a715a<br>😄 Pronouns: He/His<br>⚡ Fun fact: If I am not coding then I am probably playing games with my friends
+🔭 I’m currently working at GlobalLogic<br>💬 Ask me about Web development related stuff<br>📫 How to reach me: LinkedIn - https://www.linkedin.com/in/deepak-sharma-49b9a715a<br> Pronouns: He/His<br>⚡ Fun fact: If I am not coding then I am probably playing games with my friends
 
 
 ## 🌐 Socials:
